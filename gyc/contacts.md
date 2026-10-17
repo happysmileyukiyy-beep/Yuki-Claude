@@ -18,3 +18,12 @@
 - Instagram：https://www.instagram.com/yu_kameoka/
 - Facebook：https://www.facebook.com/kameoka/
 - 案件：ロゴマーク・ネームタグ各30枚（決済済み、納期連絡待ち／10/26までにエルディア宛希望）
+
+**株式会社モリタ 横浜支店　器械情報営業グループ 大宮 章 さん**（歯科器械・ディーラー）
+- 住所：〒222-0033 横浜市港北区新横浜2-3-8 KDX新横浜ビル9F
+- TEL：045-473-8471
+- FAX：045-473-8488
+- 携帯：090-9090-5960
+- E-mail：aohmiya@morita.com
+- Web：https://www.dental-plaza.com
+- 案件：（未記入）
